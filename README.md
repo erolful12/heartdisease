@@ -1,1 +1,1 @@
-heart disease ara rapor linki - https://youtu.be/1eqbY1a2xGQ
+heart disease ikinci ara rapor linki - https://youtu.be/SXThWF6ADKI
